@@ -1,1 +1,1 @@
-# Laboratory-work-1
+https://vladdimov.github.io/Laboratory-work-1/
